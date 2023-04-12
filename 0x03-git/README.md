@@ -1,1 +1,1 @@
-janajana
+MAnutd na bastard
